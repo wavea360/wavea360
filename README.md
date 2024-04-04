@@ -19,7 +19,7 @@ Welcome to the vibrant world of Wavea, where your business's digital dreams turn
 
 Ready to launch? 🚀 Schedule a meeting with our experts and let's craft something extraordinary together!
 
-Visit our [voyage headquarters](https://www.wavea.eu/) for more stellar details and client testimonials.
+Visit our [Website](https://www.wavea.eu/) for more stellar details and client testimonials.
 
 💌 **Contact**: [info@wavea.eu](mailto:info@wavea.eu)
 
